@@ -5,6 +5,6 @@ Source for SnapChat
 
 .
 
-By The Legend 0f Khaled                                                                                                      
+Jack HaXOr
 
-@i5aaaald
+@godjackhoo
